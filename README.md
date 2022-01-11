@@ -30,4 +30,3 @@ Short description about me: Sad Weeb and Gamer who overthinks everything too muc
 
 
 
-Stackoverflow/ Googling stuff 🤝  Me
