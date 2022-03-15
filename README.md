@@ -2,7 +2,6 @@
 
 ## follow me on instagram : itstnottea
 
-### I like trees
 
 
 
