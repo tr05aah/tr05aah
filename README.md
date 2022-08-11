@@ -3,4 +3,4 @@
 ## HI i am T
 
 ## follow me on instagram : boburnemm
-## Discord : JosephuJoesta#4183
+## Discord : T007#4183
