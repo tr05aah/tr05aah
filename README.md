@@ -1,6 +1,4 @@
-## HI i am T
-
-
+## Hi, so you found my github account....great
 
 
 ## follow me on instagram : boburnemm
