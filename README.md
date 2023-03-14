@@ -3,7 +3,6 @@
 ## (┛◉Д◉)┛彡┻━┻
 
 ## Discord : thomson007#4183
-## Tumblr: thomsongayyipee
 
 
 
