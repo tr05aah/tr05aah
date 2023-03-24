@@ -21,5 +21,5 @@
 
 
 why are you here???(´･_･`)( ಠ ಠ )
-i dont have very interesting stuff on here.... until now. probably never. but who knows
+i dont have very interesting stuff on here.... until now
 
