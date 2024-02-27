@@ -21,5 +21,5 @@
 
 
 why are you here???(´･_･`)( ಠ ಠ )
-i dont have very interesting stuff on here.... until now
+i dont have very interesting stuff on here.... also im gonna make a new account fuck this this is my stupid school account anyways
 
