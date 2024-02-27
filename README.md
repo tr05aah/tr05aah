@@ -2,7 +2,7 @@
 
 ## (┛◉Д◉)┛彡┻━┻
 
-## Discord : .tom0007
+## Discord : .tom007
 
 
 
